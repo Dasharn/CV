@@ -19,7 +19,7 @@ London | dasharndennis@gmail.com | 07432150386 | [LinkedIn](https://www.linkedin
 
 ## WORK EXPERIENCE
 
-### IQUW Syndicate
+### ERS
 - **Underwriting Operations Analyst Intern**
 - *July 2023 – Present*
 - London
